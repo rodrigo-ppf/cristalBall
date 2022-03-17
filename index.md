@@ -1,3 +1,6 @@
+POLÍTICA DE PRIVACIDADE
+
+
 
 SEÇÃO 1 - O QUE FAREMOS COM ESTA INFORMAÇÃO?
 Quando você realiza alguma transação com nossa loja, como parte do processo de compra e venda, coletamos as informações pessoais que você nos dá tais como: nome, e-mail e endereço.
