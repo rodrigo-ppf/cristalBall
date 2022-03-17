@@ -1,0 +1,2 @@
+# cristalBall
+Politica de privacidade
